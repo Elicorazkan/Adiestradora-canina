@@ -1,3 +1,4 @@
+![3_paseo](https://github.com/user-attachments/assets/80e1972d-ee1a-4865-bcfb-604f025d8b32)
 <img width="1024" height="1536" alt="file_000000004d6461f8a20db568fbfd19c7" src="https://github.com/user-attachments/assets/0817f857-7501-4811-aef8-57b2e09ab9a6" />
 ![3_paseo](https://github.com/user-attachments/assets/28125705-daf4-4134-9bd7-5687b5022338)
 # Adiestradora-canina# 🐶 Adiestramiento Canino Positivo – Elicorazkan
