@@ -1,4 +1,5 @@
-![Uploading file_000000004d6461f8a20db568fbfd19c7.png…]()
+
+<img width="1024" height="1536" alt="file_000000004d6461f8a20db568fbfd19c7" src="https://github.com/user-attachments/assets/127ae96b-775c-4c66-8d8d-234a5ed1ecb2" />
 
 # Adiestradora-canina# 🐶 Adiestramiento Canino Positivo – Elicorazkan
 Bienvenida/o a mi espacio digital. Aquí encontrarás recursos, guías, consejos y ejercicios prácticos relacionados con el adiestramiento canino basado en la confianza y el respeto.
